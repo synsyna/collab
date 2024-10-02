@@ -1,3 +1,1 @@
 # Colaboration
-
-осень отстой
